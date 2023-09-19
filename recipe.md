@@ -7,6 +7,7 @@
 - 1 cup chocolate chips
 - 1 tsp vanilla extract
 - 1/2 tsp ground cinnamon
+- 100g chilli powder (real)
 - ...
 
 ## Instructions:
