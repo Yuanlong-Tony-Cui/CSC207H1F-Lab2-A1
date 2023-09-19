@@ -18,6 +18,7 @@
 4. Add a tablespoon of instant coffee to the dry ingredients for a hint of mocha flavor.
 5. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
 6. Pour the batter into a greased and floured 9x13-inch baking pan.
+7. add frosting
 =======
 - 1/2 tsp ground cinnamon
 - ...
